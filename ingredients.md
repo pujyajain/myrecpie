@@ -1,0 +1,1 @@
+You will need 1 cup shredded cabbage, ½ shredded carrots, 8 to 10 french beans (thinly sliced or finely chopped), ⅓ sliced capsicum and ⅓ cup chopped spring onion whites.Increase the quantity of veggies according to your preferences.  A bowl of nooddless ,sesame oil,salt,garlic,ginger,spring onion ,tomato sauce,black perrer,soy sauce 
